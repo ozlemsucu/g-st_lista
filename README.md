@@ -1,1 +1,0 @@
-# g-st_lista
